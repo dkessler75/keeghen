@@ -9,4 +9,5 @@
 ### Going Home
   We were at home and no one was there because everyone was at school and work. So, to pass the time I biult the legos I got from the hospital. It was a Pirate's of the Carrabean Lego(r) set.  It took me about 2 minutes to put together.  It was a very small and simple set.  The next day we got ice cream.  
 
+
   <img src='http://wildhunt.org/wp-content/uploads/2016/04/maxresdefault.jpg'/>
