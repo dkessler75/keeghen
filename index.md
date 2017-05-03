@@ -5,6 +5,8 @@
 
 ### little sisters experience
   My little sister as well was there.  And she got hit by glass at her lip,cheek, and on top of her eyebrow. In the hospital she through up and my mom was woried. Then my dad and I went to see my sister and mom I got to talk to mom and git to eat some fruit. I think she got a little concussion but she was fine.
+  
+  <img src='http://wildhunt.org/wp-content/uploads/2016/04/maxresdefault.jpg'/>
 
 ### Going Home
   We were at home and no one was there because everyone was at school and work. So, to pass the time I biult the legos I got from the hospital. It was a Pirate's of the Carrabean Lego(r) set.  It took me about 2 minutes to put together.  It was a very small and simple set.  The next day we got ice cream.  
